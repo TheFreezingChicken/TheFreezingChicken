@@ -1,5 +1,5 @@
 **About Me** <br>
-Spoiled brat, going for self-employed.
+Spoiled brat failing at being self-employed.
 <br><br>
 
 **Currently working on/with**:
